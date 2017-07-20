@@ -18,8 +18,8 @@ This recipe was suggested by a friend of mine, and we are still changing it ever
 ## steps
 1. use the garlic (1 piece), pine nuts and fresh basil to create a fine pesto
    (see: https://uitpaulineskeuken.nl/2013/10/pesto-maken.html).
-   Note: do not add parmesan cheese to your pesto as it will ruin the flavor
-         of the dish.
+   Note: we do not add parmesan cheese to the pesto, so we don't know if it
+         works with the dish.
    
 2. cut the union in fine pieces and the garlic (1 piece) in fine slices.
    Saute the onion (in olive oil) for like 5 minutes after which you add the
