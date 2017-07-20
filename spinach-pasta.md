@@ -29,6 +29,7 @@ This recipe was suggested by a friend of mine, and we are still changing it ever
    30 minutes with little heat.
 
 3. dice the cherry tomatoes in half, and together with the spinach add them
-   to the sauce.  
+   to the sauce.
 
-4. cook the paste al dente after which, together with the sauce you can serve it.
+4. cook the paste al dente (+- 4 minutes) after which, together with the sauce
+   it is ready to serve.
