@@ -1,4 +1,4 @@
-#spinach pasta (2-3 persons)
+# spinach pasta (2-3 persons)
 
 This recipe was suggested by a friend of mine, and we are still changing it every time we make it.
 
