@@ -1,8 +1,8 @@
-﻿#Tiramisu Recept
+# Tiramisu Recept
 
-Gebaseerd op recept: `De Generaal`
+Geinspireerd door tiramisu recept: `De Generaal`
 
-##De ingrediënten
+## De ingrediënten
 
 * 4 eigeel (uit 4 eieren) (mengen in groote kom)
 * 2 eiwit (je houdt dus twee eiwit over van de 4 gebruikte eieren.)
@@ -15,7 +15,7 @@ Gebaseerd op recept: `De Generaal`
 * 4 eetlepels Amaretto
 
 
-##Bereidingswijze
+## Bereidingswijze
 
 Zet eerst 400 ml (+-twee kopjes) hele sterke koffie. Zorg ervoor dat deze redelijk snel afkoelt.
 
