@@ -4,22 +4,22 @@ Geinspireerd door tiramisu recept: `De Generaal`
 
 ## De ingrediënten
 
-* 4 eigeel (uit 4 eieren) (mengen in groote kom)
-* 2 eiwit (je houdt dus twee eiwit over van de 4 gebruikte eieren.)
-* 100 gram poedersuiker
-* 500 gram mascarpone
-* 1/4e zakje vanillesuiker van 8 gram
+* 8 eigeel (uit 8 eieren) (mengen in groote kom)
+* 4 eiwit (je houdt dus vier eiwit over van de 4 gebruikte eieren.)
+* 200 gram poedersuiker
+* 1000 gram mascarpone
+* 2/4e zakje vanillesuiker van 8 gram
 * cacao
-* 1 pak langevingers
-* 400 ml koffie
-* 4 eetlepels Amaretto
+* 2 pak langevingers
+* 800 ml koffie
+* 8 eetlepels Amaretto
 
 
 ## Bereidingswijze
 
-Zet eerst 400 ml (+-twee kopjes) hele sterke koffie. Zorg ervoor dat deze redelijk snel afkoelt.
+Zet eerst 800 ml (+-twee kopjes) hele sterke koffie. Zorg ervoor dat deze redelijk snel afkoelt.
 
-Scheid de eierdooiers en het eiwit. Klop 4 eierdooieres met de (poeder) suiker tot een mooie gladde gele
+Scheid de eierdooiers en het eiwit. Klop 8 eierdooieres met de (poeder) suiker tot een mooie gladde gele
 creme onstaat.
 Klop de twee eiwitten (gooi de andere twee weg) op tot een witte schuim (dit doe ik altijd
 in een keukenmachine, het schijnt met de hand nogal lang te duren).
