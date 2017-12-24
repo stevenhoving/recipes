@@ -1,4 +1,4 @@
-# Tiramisu Recept
+# Tiramisu Recept (8 pers)
 
 Geinspireerd door tiramisu recept: `De Generaal`
 
