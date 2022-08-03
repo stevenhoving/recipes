@@ -14,3 +14,5 @@ INGREDIËNTEN VOOR 4 PERSONEN
 * 500 g speltspaghetti
 * 12 zongedroogde tomaatjes in olle, gehalveerd
 * optioneel versgeraspte Parmezaanse kaas
+
+* optioneel feta
