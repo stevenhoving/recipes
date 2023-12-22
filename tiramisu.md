@@ -9,11 +9,10 @@ Geinspireerd door tiramisu recept: `De Generaal`
 * 200 gram poedersuiker
 * 1000 gram mascarpone
 * 2/4e zakje vanillesuiker van 8 gram
-* cacao
+* cacao poeder
 * 2 pakker langevingers
 * 800 ml koffie
 * 8 eetlepels Amaretto
-* cacao poeder
 
 
 ## Bereidingswijze
