@@ -13,7 +13,7 @@ Geinspireerd door tiramisu recept: `De Generaal`
 * 2 pakker langevingers
 * 800 ml koffie
 * 8 eetlepels Amaretto
-* cacao 
+* cacao poeder
 
 
 ## Bereidingswijze
