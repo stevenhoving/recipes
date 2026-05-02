@@ -23,11 +23,17 @@ Servings:           +-4 personen
 
 ## Bereidingswijze
 Breng een pan water met een snuf zout aan de kook.
+
 Snij de broccoli in roosjes en kook deze beetgaar.
+
 Kook de rijst zoals op de verpakking vermeld.
+
 Snij de kipfilet in blokjes.Marineer desgewenst zoals eerder beschreven voor extra malse kipfilet.
+
 Snipper het uitje, snij de knoflook fijn, snij de bosui in dunne ringen en snij de paprika in stukjes.
+
 Maak een saus van de oestersaus, ketjap, 100 ml water en de sojasaus.
+
 Fruit de knoflook, ui en gember aan in een koekenpan met een beetje olie.
 Bak daarna even de puntpaprika mee en voeg daarna de kip toe.
 Als de kip gaar is voeg je de saus toe.
